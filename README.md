@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jhenyffersilva
+- 👀 estou interessado em novas linguagens 
+- 🌱 eu estou aprendendo a programar a linguagem de javascrip e scractha.silva@e
